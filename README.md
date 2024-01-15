@@ -1,0 +1,1 @@
+# GruppoSigla_Progetto
